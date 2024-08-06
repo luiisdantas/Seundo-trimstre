@@ -1,1 +1,1 @@
-# Seundo-trimstre
+# Segundo-trimstre
